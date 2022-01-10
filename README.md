@@ -1,0 +1,1 @@
+I am an archaeologist (M.A.) with 11 years of field work. In addition, I am a trained graphic designer. Combining these two strands, my aim is to optimize the interaction and integration of surveying and 3D documentation with the requirements of traditional excavation documentation. To know more about me, please also visit my website: www.felixwolter.de
